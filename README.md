@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me ...
-- 😄 Pronouns: Pronouns are for anti-cheesers
-- ⚡ Fun fact: Uuuuuh, i'm smart or something
+- 😄 Pronouns: Pronouns are for people who don't like cheese
+- ⚡ Fun fact: I'm smart
 
 <!---
 frikandelcat/frikandelcat is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
