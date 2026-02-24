@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me ...
 - 😄 Pronouns: Pronouns are for people who don't like cheese
-- ⚡ Fun fact: I'm smart
+- ⚡ Fun fact: I'm smart, cool, nice and handsome
 - 🪑 Chair
 
 <!---
