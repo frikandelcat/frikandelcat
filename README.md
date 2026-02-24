@@ -5,6 +5,7 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: Pronouns are for people who don't like cheese
 - ⚡ Fun fact: I'm smart
+- 🪑 Chair
 
 <!---
 frikandelcat/frikandelcat is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
